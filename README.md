@@ -2,7 +2,8 @@
 
 
 ### 💡 Goals for 2023:
-- Gradate
+- Stay alive;
+- Gradate.
 
 
 
